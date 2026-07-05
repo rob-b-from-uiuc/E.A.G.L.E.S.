@@ -101,7 +101,7 @@ I'd also try to listen to that choice multiple times before this last meeting, i
 
 ---
 
-## Rob's advice on how / when / when not to complete E.A.G.L.E.S. listening "assignments" 
+## On listening to albums as albums 
 Look, bud, like I said up there... I can't tell you what to do, and none of what I am about to suggest is in any way required to have a great time in our weekly listening discussion meetings. But this is largely a session focused on particular albums... albums from the so-called heyday of the "album-oriented rock" format, at that. 
 
 It's just one person's approach, but here's how I *usually try* to approach my *first* listen to *any* album, at least if I know it's from an "album-oriented artist":
