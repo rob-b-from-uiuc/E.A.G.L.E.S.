@@ -26,7 +26,7 @@ Our listening-club meetings for this E.A.G.L.E.S. session will be **hybrid meeti
 | Date | Steely Dan meeting # | Pre-listening for meeting | Listening time |
 | --- | :---: | :---: | :---: |
 | July 10, 2026 | 1 |  Rob's Introductory SD Playlist | 46 min. | 
-| ***no meeting week of July 17*** | | |
+| ***no meeting July 17*** | | |
 | July 24, 2026 | 2 | *Pretzel Logic* (1974) | 34 min. |
 | July 31, 2026 | 3 | *Gaucho* (1980) | 38 min. |
 | August 7, 2026 | 4 | **Choose one:** *Aja* (1977) **or** Donald Fagen's *The Nightfly* (1982) | 40 min. ea. |
@@ -76,20 +76,26 @@ Before this meeting, listen to Steely Dan's 1974 album *Pretzel Logic*
 --- 
 
 ### July 31 - Week 3 "assignment": *Gaucho* (1980; 38 min.)
+
 Before this meeting, listen to *Gaucho* 
+
 (1980; the seventh SD album, their first [and last!] for MCA, and their final record before a multi-decade hiatus)
 
-- "Extra credit:" Seek out and read a few versions of the tragic story of doomed *Gaucho* track "The Second Arrangement" ([here's just one suggestion](https://wiki-lied.fandom.com/wiki/The_Second_Arrangement). 
--- In 2023, a few tapes from the estate of mad scientist / longtime SD engineer Roger Nichols containing long-lost draft mixes of "The Second Arrangement" were captured and released digitally. This kicked off a multi-year frenzy of commentary among amateur Dan scholars, along with complicated collaged "remixes" of "The Second Arrangement." Some "remixes," [like this one](https://www.youtube.com/watch?v=xPXhTH7zGw4), sound pretty darned good. Have a listen to a few, if you dare; enjoy the rabbit hole!
+- "Extra credit:" Seek out and read a few versions of the tragic story of doomed *Gaucho* track "The Second Arrangement" ([here's just one suggestion](https://wiki-lied.fandom.com/wiki/The_Second_Arrangement).
+- In 2023, a few tapes from the estate of mad scientist / longtime SD engineer Roger Nichols containing long-lost draft mixes of "The Second Arrangement" were captured and released digitally. This kicked off a multi-year frenzy of commentary among amateur Dan scholars, along with complicated collaged "remixes" of "The Second Arrangement." Some "remixes," [like this one](https://www.youtube.com/watch?v=xPXhTH7zGw4), sound pretty darned good. Have a listen to a few, if you dare; enjoy the rabbit hole!
 
 ---
 
 ### August 7 - Week 4 "assignment:" 
-**Choose your own Danventure week!**
-Listen to your choice of the following:
+**It's Choose Your Own Danventure week!**
+Listen to your choice of ***one*** of the following:
+
 *Aja* 
+
 (1977; the sixth SD album)
+
 ***OR*** 
+
 Donald Fagen's solo debut, *The Nightfly* (1982)
 
 We'll split the discussion this week, with half of it allocated to each record. You may listen to both "assigned" records if you choose. But I'd suggest that each E.A.G.L.E.S. participant picks *only* one, focusing on *just* that record for our final week of the session.
@@ -109,7 +115,7 @@ It's just one person's approach, but here's how I *usually try* to approach my *
 
 1. Listen to the album as attentively and mindfully as life reasonably allows. 
 2. Try to observe the song titles as they each pass by in the album sequence. (Don't worry, I won't expect you to remember them in our discussion meetings. A track list will be posted!)
-3. If possible, listen to the album on a fairly decent set of speakers [^2] or headphones. 
+3. If possible, listen to the album on a fairly decent set of speakers[^2] or headphones. 
 4. Listen to the entire album start to finish, trying not to get too distracted or interrupted while listening. If you do get interrupted, do your best to restart your listening more or less where you got interrupted.
 
 **None of this has to happen at all, though, for you to thoroughly enjoy the meetings.** If you don't get a chance to listen to the "assignment" for that week, please just come to the meeting anyway. This is all just for fun, and you'll probably get something to think about for later, for when you *do* get to check that material out, somewhere further on down life's highway. 
@@ -123,7 +129,7 @@ I hope this doesn't sound like anything other than a ton of fun to you, and I ca
 
 
 
-[^1] Having literally become a classic business-school case study in what *not* to do in cost reduction / ending up the late-70s-beer-market equivalent of post-Elon Twitter, Schlitz is now back in production! Better yet, 202x Schlitz is purportedly a full reboot of the original SD-era recipe that everyone actually adored in America, 1973. Whether that is a lie or not, 202x Schlitz is actually a great beer. Binny's usually has it, buried among the usual-suspect garbage American lagers. Recommend experiencing "nu-Schlitz" in glass bottles over cans, although cans of Schlitz do provide their own, distinct, satisfying dad-garage experience. 
+[^1]: Having literally become a classic business-school case study in what *not* to do in cost reduction / ending up the late-70s-beer-market equivalent of post-Elon Twitter, Schlitz is now back in production! Better yet, 202x Schlitz is purportedly a full reboot of the original SD-era recipe that everyone actually adored in America, 1973. Whether that is a lie or not, 202x Schlitz is actually a great beer. Binny's usually has it, buried among the usual-suspect garbage American lagers. Recommend experiencing "nu-Schlitz" in glass bottles over cans, although cans of Schlitz do provide their own, distinct, satisfying dad-garage experience. 
 
 
-[^2] More than perhaps any other major rock or pop act, Steely Dan is legendary for their obsessive prioritization of recording quality. Hi-fi gearheads and professional live-audio engineers still use SD albums as system benchmark fodder even today. If you lack Steely Dan-ready speakers, have somewhere in the neighborhood of fifty bucks to burn on a crazy project, and a willingness to spend a couple hours cutting up foamcore board at interesting angles, I can happily help you with this as an "extra credit project." Not even joking: "free" speakers with your falsified interest in Steely Dan! Contact me for more details if this intrigues you. But you're absolutely fine listening on whatever you've got, too. I mean it!
+[^2]: More than perhaps any other major rock or pop act, Steely Dan is legendary for their obsessive prioritization of recording quality. Hi-fi gearheads and professional live-audio engineers still use SD albums as system benchmark fodder even today. If you lack Steely Dan-ready speakers, have somewhere in the neighborhood of fifty bucks to burn on a crazy project, and a willingness to spend a couple hours cutting up foamcore board at interesting angles, I can happily help you with this as an "extra credit project." Not even joking: "free" speakers with your falsified interest in Steely Dan! Contact me for more details if this intrigues you. But you're absolutely fine listening on whatever you've got, too. I mean it!
