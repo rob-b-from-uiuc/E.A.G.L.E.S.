@@ -8,7 +8,7 @@
 
 E.A.G.L.E.S. is a experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
 
-**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. I'll have a link here; put it on your calendar if you need to, but otherwise, just turn up. 
+**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. I'll have a link and a physical location for real-world attendees posted here shortly (yes, right here! this line! soon!).
 
 The topic of this first E.A.G.L.E.S. session is, as you have probably already noticed, the music of **Steely Dan** (*not the music of the Eagles*). I've chosen to make this first E.A.G.L.E.S. session four meetings long. 
 
@@ -51,21 +51,21 @@ More than that, I'm here to arm my colleagues (and their friends, and anyone els
 Listen to Rob's hand-selected playlist from the SD "original run" albums (1972-1980). None of these songs appear on later weeks' "assigned" albums.
 
 ### Week 1 Playlist - Side A (22 minutes)
-A1. Bodhisattva (live from *Citizen Steely Dan* box set; original studio version on *Countdown to Ecstasy*, 1973)
-A2. Midnite Cruiser (*Can't Buy a Thrill*, 1972)
-A3. The Caves of Altamira (*The Royal Scam*, 1976)
-A4. Pearl of the Quarter (*Countdown to Ecstasy*, 1973)
+A1. Bodhisattva (live from *Citizen Steely Dan* box set; original studio version on *Countdown to Ecstasy*, 1973)  
+A2. Midnite Cruiser (*Can't Buy a Thrill*, 1972)  
+A3. The Caves of Altamira (*The Royal Scam*, 1976)  
+A4. Pearl of the Quarter (*Countdown to Ecstasy*, 1973)  
 A5. Rose Darling (*Katy Lied*, 1975)
 	
 INTERMISSION / HAVE A BEER: 
 [Steely Dan's Schlitz jingle, 1973?](https://www.youtube.com/watch?v=JL0mH76XJ3A)[^1] - **make sure you switch off YouTube's AI-generated "autodubbed" audio track before listening!**
 
 ### Week 1 Playlist - Side B (also 22 minutes)
-B1. King of the World (*Countdown to Ecstasy*, 1973)
-B2. FM (single / theme from the motion picture *FM*, 1978)
-B3. Green Earrings (*The Royal Scam*, 1976)
-B4. Any World (That I'm Welcome To) (*Katy Lied*, 1975)
-B5. The Fez (*The Royal Scam*, 1976) 
+B1. King of the World (*Countdown to Ecstasy*, 1973)  
+B2. FM (single / theme from the motion picture *FM*, 1978)  
+B3. Green Earrings (*The Royal Scam*, 1976)  
+B4. Any World (That I'm Welcome To) (*Katy Lied*, 1975)  
+B5. The Fez (*The Royal Scam*, 1976)   
 
 ---	
 
