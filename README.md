@@ -24,7 +24,7 @@ Our listening-club meetings for this E.A.G.L.E.S. session will be **hybrid meeti
 **There are four meetings in this series:**
 
 | Date | Steely Dan meeting # | Pre-listening for meeting | Listening time |
-|---|---|---|---|
+| --- | :---: | :---: | :---: |
 | July 10, 2026 | 1 |  Rob's Introductory SD Playlist | 46 min. | 
 | ***no meeting week of July 17*** | | |
 | July 24, 2026 | 2 | *Pretzel Logic* (1974) | 34 min. |
