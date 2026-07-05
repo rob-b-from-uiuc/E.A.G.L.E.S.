@@ -6,15 +6,15 @@
 ## What is E.A.G.L.E.S.?
 **E.A.G.L.E.S. stands for EngrIT Album / Genre Listening Enjoyment Society.**
 
-E.A.G.L.E.S. is a experiment. It is meant to be a structured - but casual an as fun as possible! - music-listening-and-subsequent-discussion gathering. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
+E.A.G.L.E.S. is a experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
 
 **Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. I'll have a link here; put it on your calendar if you need to, but otherwise, just turn up. 
 
-The topic of this first E.A.G.L.E.S. session is, as you have probably already noticed, the music of **Steely Dan** (*not the music of the Eagles*). 
+The topic of this first E.A.G.L.E.S. session is, as you have probably already noticed, the music of **Steely Dan** (*not the music of the Eagles*). I've chosen to make this first E.A.G.L.E.S. session four meetings long. 
 
-I've chosen to make this first E.A.G.L.E.S. session four meetings long. Each week, if possible, you'll listen to roughly 40 minutes of Steely Dan's music sometime prior to our scheduled meeting. Then we'll meet for an hour, discuss the assigned album / songs, re-listen to some of the songs, discuss those too, and go back / do it again. 
+Each week, if possible, you'll listen to roughly 40 minutes of Steely Dan's music sometime prior to our scheduled meeting. Then we'll meet for an hour, discuss the assigned album / songs, re-listen to some of the songs, discuss those too, and go back / do it again. 
 
-Our discussion meetings will be held on four summer Fridays at noon, **starting this coming Friday, July 10**. No, you *don't* need to be at the first meeting to attend the second one - nor any of the others. Each meeting will be a mostly self-contained good time that requires no knowledge of prior meeting events for your continued enjoyment. Again, please, just turn up!
+Our discussion meetings will be held on four summer Fridays at noon, **starting this coming Friday, July 10**. No, you *don't* need to be at the first meeting to attend the second one - nor any of the others. You won't have missed anything "necessary." Again, please, just turn up!
 
 --- 
 
@@ -51,35 +51,32 @@ More than that, I'm here to arm my colleagues (and their friends, and anyone els
 Listen to Rob's hand-selected playlist from the SD "original run" albums (1972-1980). None of these songs appear on later weeks' "assigned" albums.
 
 ### Week 1 Playlist - Side A (22 minutes)
-- A1. Bodhisattva (live from *Citizen Steely Dan* box set; original studio version on *Countdown to Ecstasy*, 1973)
-- A2. Midnite Cruiser (*Can't Buy a Thrill*, 1972)
-- A3. The Caves of Altamira (*The Royal Scam*, 1976)
-- A4. Pearl of the Quarter (*Countdown to Ecstasy*, 1973)
-- A5. Rose Darling (*Katy Lied*, 1975)
+A1. Bodhisattva (live from *Citizen Steely Dan* box set; original studio version on *Countdown to Ecstasy*, 1973)
+A2. Midnite Cruiser (*Can't Buy a Thrill*, 1972)
+A3. The Caves of Altamira (*The Royal Scam*, 1976)
+A4. Pearl of the Quarter (*Countdown to Ecstasy*, 1973)
+A5. Rose Darling (*Katy Lied*, 1975)
 	
-- INTERMISSION / HAVE A BEER: 
+INTERMISSION / HAVE A BEER: 
 [Steely Dan's Schlitz jingle, 1973?](https://www.youtube.com/watch?v=JL0mH76XJ3A)[^1] - **make sure you switch off YouTube's AI-generated "autodubbed" audio track before listening!**
 
-### Week 1 Playlist - Side B (22 minutes)
-- B1. King of the World (*Countdown to Ecstasy*, 1973)
-- B2. FM (single / theme from the motion picture *FM*, 1978)
-- B3. Green Earrings (*The Royal Scam*, 1976)
-- B4. Any World (That I'm Welcome To) (*Katy Lied*, 1975)
-- B5. The Fez (*The Royal Scam*, 1976) 
+### Week 1 Playlist - Side B (also 22 minutes)
+B1. King of the World (*Countdown to Ecstasy*, 1973)
+B2. FM (single / theme from the motion picture *FM*, 1978)
+B3. Green Earrings (*The Royal Scam*, 1976)
+B4. Any World (That I'm Welcome To) (*Katy Lied*, 1975)
+B5. The Fez (*The Royal Scam*, 1976) 
 
 ---	
 
 ### July 24 - Week 2 "assignment": *Pretzel Logic* (1974; 33 min.) 
-Before this meeting, listen to Steely Dan's 1974 album *Pretzel Logic*
-(the third SD album, and the last to feature the original "Steely-Dan-is-an-actual-band" lineup in any way).
+Before this meeting, listen to Steely Dan's 1974 album *Pretzel Logic* (the third SD album, and the last to feature the original "Steely-Dan-is-an-actual-band" lineup in any way).
 
 --- 
 
 ### July 31 - Week 3 "assignment": *Gaucho* (1980; 38 min.)
 
-Before this meeting, listen to *Gaucho* 
-
-(1980; the seventh SD album, their first [and last!] for MCA, and their final record before a multi-decade hiatus)
+Before this meeting, listen to *Gaucho* (1980; the seventh SD album, their first [and last!] for MCA, and their final record before a multi-decade hiatus).
 
 - "Extra credit:" Seek out and read a few versions of the tragic story of doomed *Gaucho* track "The Second Arrangement" ([here's just one suggestion](https://wiki-lied.fandom.com/wiki/The_Second_Arrangement).
 - In 2023, a few tapes from the estate of mad scientist / longtime SD engineer Roger Nichols containing long-lost draft mixes of "The Second Arrangement" were captured and released digitally. This kicked off a multi-year frenzy of commentary among amateur Dan scholars, along with complicated collaged "remixes" of "The Second Arrangement." Some "remixes," [like this one](https://www.youtube.com/watch?v=xPXhTH7zGw4), sound pretty darned good. Have a listen to a few, if you dare; enjoy the rabbit hole!
@@ -90,21 +87,17 @@ Before this meeting, listen to *Gaucho*
 **It's Choose Your Own Danventure week!**
 Listen to your choice of ***one*** of the following:
 
-*Aja* 
-
-(1977; the sixth SD album)
+*Aja* (1977; the sixth SD album)
 
 ***OR*** 
 
 Donald Fagen's solo debut, *The Nightfly* (1982)
 
-We'll split the discussion this week, with half of it allocated to each record. You may listen to both "assigned" records if you choose. But I'd suggest that each E.A.G.L.E.S. participant picks *only* one, focusing on *just* that record for our final week of the session.
+We'll split the discussion time at the meeting this final week, with half of it allocated to each record and the folks who chose to listen to it. 
 
-These two albums are arguably the two most culturally significant records that Steely Dan and solo-career Donald Fagen made, respectively. Each album truly contains unending multitudes (even more so than most SD-associated products!).
+You *may* listen to both "assigned" records if you choose. But I'd suggest that each E.A.G.L.E.S. participant picks *only* one, focusing on *just* that record for our final week of the session.
 
-Each of these albums, respectively, also takes a while to fully get your head and ears around. 
-
-So while I can't tell you what to do, I would personally suggest picking *only* one of these two records before our last E.A.G.L.E.S. session meeting. I'd also try to listen to that choice multiple times before this last meeting, if you can. But you do you!
+I'd also try to listen to that choice multiple times before this last meeting, if you can. But you do you!
 
 ---
 
@@ -124,7 +117,7 @@ It's just one person's approach, but here's how I *usually try* to approach my *
 
 I hope this doesn't sound like anything other than a ton of fun to you, and I can't wait to see you and talk Dan / Dan reactions with you all. Please let me know if you have any questions or fears about joining us in E.A.G.L.E.S. #1: The Music and Albums of Steely Dan!
 
-- Rob B. 
+*Rob B., July 2026*
 
 
 
