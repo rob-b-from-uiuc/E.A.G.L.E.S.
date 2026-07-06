@@ -6,7 +6,7 @@
 ## What is E.A.G.L.E.S.?
 **E.A.G.L.E.S. stands for EngrIT Album / Genre Listening Enjoyment Society.**
 
-E.A.G.L.E.S. is a experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
+E.A.G.L.E.S. is an experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
 
 **Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. I'll have a link and a physical location for real-world attendees posted here shortly (yes, right here! this line! soon!).
 
