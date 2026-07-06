@@ -78,7 +78,7 @@ Before this meeting, listen to Steely Dan's 1974 album *Pretzel Logic* (the thir
 
 Before this meeting, listen to *Gaucho* (1980; the seventh SD album, their first [and last!] for MCA, and their final record before a multi-decade hiatus).
 
-- "Extra credit:" Seek out and read a few versions of the tragic story of doomed *Gaucho* track "The Second Arrangement" [(here's just one suggestion)](https://wiki-lied.fandom.com/wiki/The_Second_Arrangement).
+- "Extra credit:" Seek out and read a few versions of the tragic story of doomed *Gaucho* track "The Second Arrangement" ([here's just one suggestion](https://wiki-lied.fandom.com/wiki/The_Second_Arrangement)).
   - In 2023, a few tapes from the estate of mad scientist / longtime SD engineer Roger Nichols containing long-lost draft mixes of "The Second Arrangement" were captured and released digitally. This kicked off a multi-year frenzy of commentary among amateur Dan scholars, along with complicated collaged "remixes" of "The Second Arrangement." Some "remixes," [like this one](https://www.youtube.com/watch?v=xPXhTH7zGw4), sound pretty darned good. Have a listen to a few, if you dare; enjoy the rabbit hole!
 
 ---
