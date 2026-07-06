@@ -48,7 +48,7 @@ More than that, I'm here to arm my colleagues (and their friends, and anyone els
 
 ## Weekly-assignment notes and media links
 ### For July 10 - Week 1 "assignment": 
-Listen to Rob's hand-selected playlist from the SD "original run" albums (1972-1980). None of these songs appear on later weeks' "assigned" albums.
+Listen to Rob's hand-selected playlist(s!) from the SD "original run" albums (1972-1980). None of these songs appear on later weeks' "assigned" albums. **Please note:** I've divided the ten-song listening "assignment" into ***two*** five-song playlists - two "sides" of an "album" - and included a beer break / commercial in between. 
 
 ### Week 1 Playlist - Side A (22 minutes) | [Apple Music](https://music.apple.com/us/playlist/week-1-playlist-side-a/pl.u-Ymb0922c118GW2) | [Spotify](https://open.spotify.com/playlist/68RqgG6axtav8gh6jlOYRw)  
 A1. Bodhisattva (live from *Citizen Steely Dan* box set; original studio version on *Countdown to Ecstasy*, 1973)  
