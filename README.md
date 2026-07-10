@@ -1,6 +1,8 @@
 # E.A.G.L.E.S. #1: The Music and Albums of Steely Dan 
 ### July - August 2026 - Led by Rob B. 
 
+**[This is the meeting link for online attendees (go.illinois* link redirects to a Zoom meeting space)](https://go.illinois.edu/MeetRobBennett). Real-world attendees can meet Rob today in the seating area / south first-floor lobby of the NCSA building.** We are meeting TODAY (July 10) at NOON. 
+
 ---
 
 ## What is E.A.G.L.E.S.?
@@ -8,7 +10,7 @@
 
 E.A.G.L.E.S. is an experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
 
-**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. I'll have a link and a physical location for real-world attendees posted here shortly (yes, right here! this line! soon!).
+**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. You may attend our casual meeting sessions online by using [this go link to Rob's Zoom meeting space](https://go.illinois.edu/MeetRobBennett). Current physical / real-world meeting location for the July 10 meeting is the south side of the first-floor NCSA lobby (tables / seating area). 
 
 The topic of this first E.A.G.L.E.S. session is, as you have probably already noticed, the music of **Steely Dan** (*not the music of the Eagles*). I've chosen to make this first E.A.G.L.E.S. session four meetings long. 
 
