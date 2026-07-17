@@ -11,8 +11,6 @@ Meeting #2 will be held **Friday, July 24 at noon** in the NCSA lobby seating ar
 - MAIN COURSE: Listen to some or, preferably, all of Steely Dan's 1974 album *Pretzel Logic* *([Apple Music](https://music.apple.com/us/album/pretzel-logic/1696215205) | Spotify; 33 minutes total)*
 - OPTIONAL (but recommended): Listen to or watch [Rob's 18-minute session introduction video](https://youtu.be/Q8HPIKiXMpw) *(YouTube; 18 minutes; sorry, i tried)*
   - This video is explicitly meant to "replace" the July 10 club meeting for those who couldn't make it.
-    - *...in other words: "shoot, I missed Week 1" isn't an valid excuse to miss Week 2 or any other E.A.G.L.E.S. meeting* :D :D :D
-  - My video may also help you establish whether E.A.G.L.E.S. #1 is gonna be your idea of a good time, if you're on the fence.
   - OPTIONAL: Listen to or watch original Steely Dan band member Denny Dias' [June 2026 Grammy Museum retelling of the "Bodhishattva" (*...or was that "King of the World"...?*) synthesizer story](https://www.youtube.com/watch?v=eYdoFgasoN4) (YouTube; 7 minutes)
   
 ---
