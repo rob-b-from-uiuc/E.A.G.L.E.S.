@@ -1,8 +1,17 @@
 # E.A.G.L.E.S. #1: The Music and Albums of Steely Dan 
-### July - August 2026 - Led by Rob B. 
+### July - August 2026 - Led by Rob B. - select Fridays at noon (remaining Friday meetings: 7/24, 7/31, and 8/7)
 
-**[This is the meeting link for online attendees (go.illinois* link redirects to a Zoom meeting space)](https://go.illinois.edu/MeetRobBennett). Real-world attendees can meet Rob today in the seating area / south first-floor lobby of the NCSA building.** We are meeting TODAY (July 10) at NOON. 
+## Information for the next meeting 
+Meeting #2 will be held **Friday, July 24 at noon** in the NCSA lobby seating area. [Remote attendees may join us online](https://go.illinois.edu/MeetRobBennett).
 
+**"Assignment" for this meeting** (all are always optional, just do your best to complete before the meeting):
+- MAIN COURSE: Listen to Steely Dan's 1974 album *Pretzel Logic* ([Apple Music](https://music.apple.com/us/album/pretzel-logic/1696215205) | Spotify; 33 minutes total)
+- OPTIONAL (but recommended): Listen to or watch Rob's 18-minute session introduction video (YouTube; 18 minutes [sorry])
+  - This video is explicitly meant to "replace" the July 10 club meeting for those who couldn't make it.
+    - *...in other words: "I missed Week 1" isn't an valid excuse to miss Week 2* :D :D :D
+  - My video may also help cynics establish whether E.A.G.L.E.S. #1 is gonna be a good time for them. (It will be, but if you're not quite convinced...)
+- OPTIONAL: Listen to or watch original Steely Dan band member Denny Dias' [June 2026 Grammy Museum retelling of the "Bodhishattva" (*...or was that "King of the World"...?*) synthesizer story](https://www.youtube.com/watch?v=eYdoFgasoN4) (YouTube; 7 minutes)
+  
 ---
 
 ## What is E.A.G.L.E.S.?
@@ -10,7 +19,7 @@
 
 E.A.G.L.E.S. is an experiment. It's a little like a book club, but structured into short series of meetings on a single musical topic. In E.A.G.L.E.S. parlance, these short groups of topically-unified meetings are called *sessions*. 
 
-**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. You may attend our casual meeting sessions online by using [this go link to Rob's Zoom meeting space](https://go.illinois.edu/MeetRobBennett). Current physical / real-world meeting location for the July 10 meeting is the south side of the first-floor NCSA lobby (tables / seating area). 
+**Anyone - EngrITian or non- - is welcome to attend E.A.G.L.E.S. meetings and sessions.** There is no signup or RSVP whatsoever. You may attend our casual meeting sessions online by using [this go link to Rob's Zoom meeting space](https://go.illinois.edu/MeetRobBennett). Current physical / real-world meeting location is the south side of the first-floor NCSA lobby (tables / seating area). 
 
 The topic of this first E.A.G.L.E.S. session is, as you have probably already noticed, the music of **Steely Dan** (*not the music of the Eagles*). I've chosen to make this first E.A.G.L.E.S. session four meetings long. 
 
