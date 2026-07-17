@@ -14,7 +14,7 @@ Meeting #2 will be held **Friday, July 24 at noon** in the NCSA lobby seating ar
   - This video is explicitly meant to "replace" the July 10 club meeting for those who couldn't make it.
   
 - OPTIONAL: Listen to or watch original Steely Dan band member Denny Dias' [June 2026 Grammy Museum retelling of the "Bodhishattva" (*...or was that "King of the World"...?*) synthesizer story](https://www.youtube.com/watch?v=eYdoFgasoN4) (YouTube; 7 minutes)
-  - [Some background on the now-rare ARP Soloist](https://reverb.com/news/how-arp-introduced-the-first-preset-synth) if you need a visual
+  - *In case you're wondering what a [non-destroyed ARP Soloist](https://www.youtube.com/watch?v=JG0nxyndzuQ) would have looked like...*
   
 ---
 
