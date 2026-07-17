@@ -9,8 +9,10 @@ Meeting #2 will be held **Friday, July 24 at noon** in the NCSA lobby seating ar
 (All "assignments" are always optional, but do your best, especially with the assigned album)
 
 - MAIN COURSE: Listen to some or, preferably, all of Steely Dan's 1974 album *Pretzel Logic* *([Apple Music](https://music.apple.com/us/album/pretzel-logic/1696215205) | Spotify; 33 minutes total)*
+
 - OPTIONAL (but recommended): Listen to or watch [Rob's 18-minute session introduction video](https://youtu.be/Q8HPIKiXMpw) *(YouTube; 18 minutes; sorry, i tried)*
   - This video is explicitly meant to "replace" the July 10 club meeting for those who couldn't make it.
+  
 - OPTIONAL: Listen to or watch original Steely Dan band member Denny Dias' [June 2026 Grammy Museum retelling of the "Bodhishattva" (*...or was that "King of the World"...?*) synthesizer story](https://www.youtube.com/watch?v=eYdoFgasoN4) (YouTube; 7 minutes)
   - [Some background on the now-rare ARP Soloist](https://reverb.com/news/how-arp-introduced-the-first-preset-synth) if you need a visual
   
